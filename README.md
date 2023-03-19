@@ -13,8 +13,8 @@ Fique à vontade para explorar meus projetos e se inspirar neles, deixar feedbac
 
 - 👋 Hi, I’m @BrunoTeless ...
 
-- 👀 Eu sou interessado sobre programação, seguração da informação, designer de paginas e claro Artes Marciais (quem não ama!).
+- 👀 Eu sou interessado em programação, seguração da informação, designer de paginas e claro Artes Marciais (quem não ama!).
 - 🌱 Eu estou sempre procurando atualizar meus conhecimentos nas linguagens que eu ja sei e obter conhecimentos sobre outras linguagens ou praticas relacionadas, não somente a programação, mais a área de TI ao todo.
-- 💞️ Eu procuro Colaborar com projetos que visem ajudar, outros programadores a obter os conhecimentos, eu obtive sempre da maneira mais simples e facil possivel.
-- 📫 Caso Você queira me Contatar: Você pode, me mandar um E-Mail (BrunoTeles4565@gmail.com), pode me ligar ou mandar uma Mensagem no Whatsapp 
-(13-98807-2020), você pode me mandar uma mensagem no meu linkeind (https://www.linkedin.com/in/bruno-teles-88516a269).
+- 💞️ Eu procuro Colaborar com projetos que visem ajudar, outros programadores a obter os conhecimentos,que eu obtive, sempre da maneira mais simples e facil possivel.
+- 📫 Caso Você queira me Contatar: Você pode, me mandar um E-Mail ( BrunoTeles4565@gmail.com ), pode me ligar ou mandar uma Mensagem no Whatsapp 
+( 13 - 98807 - 2020), você pode me mandar uma mensagem no meu linkeind (https://www.linkedin.com/in/bruno-teles-88516a269).
